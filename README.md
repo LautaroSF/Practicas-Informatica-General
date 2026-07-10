@@ -1,3 +1,3 @@
 # Practicas-Informatica-General
 
-https://www.youtube.com/watch?v=crYxTNjDxgI
+Link del video explicativo: https://www.youtube.com/watch?v=crYxTNjDxgI
